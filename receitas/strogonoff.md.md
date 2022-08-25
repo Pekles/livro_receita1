@@ -30,8 +30,8 @@
 
   1 Em uma panela a fogo médio, acrescente o óleo 
 
-  - faça
-  - 
+  - Faça
+  - Pavê 
 
 
 
